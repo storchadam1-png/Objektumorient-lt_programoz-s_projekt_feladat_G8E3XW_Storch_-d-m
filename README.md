@@ -1,2 +1,2 @@
-# Objektumorient-lt_programoz-s_projekt_feladat_G8E3XW_Storch_-d-m
+# Objektumorient-lt_programoz-s_projekt_feladat_G8E3XW_Storch_Adam
 Tisztel Tanárúr!
